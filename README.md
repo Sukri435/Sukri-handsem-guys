@@ -1,1 +1,0 @@
-# Sukri-handsem-guys
